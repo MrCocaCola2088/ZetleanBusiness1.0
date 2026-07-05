@@ -193,7 +193,7 @@ https://zetleanbusiness.com
 
 **📧 Correo Electrónico**
 
-[contact@zetleanbusiness.com](mailto:contact@zetleanbusiness.com)
+[zetlean@outlook.com](mailto:contact@zetleanbusiness.com)
 
 **💼 LinkedIn**
 
